@@ -1,5 +1,5 @@
 - Hi, I’m @rnjstr
-- I’m interested in ... social networking, among other things.
+- I’m interested in ... social networking, streaming, other things...
 - I’m looking to collaborate on ... interesting projects.
 - How to reach me ... follow me on Linkedin! http://www.linkedin.com/in/ronjester
 - You may also follow and message me on Twitter. @ronjester
